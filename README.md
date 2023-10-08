@@ -1,1 +1,1 @@
-[sanjaydadhaba](https://Sanjay-Da-Dhaba.github.io/index.html)
+[sanjaydadhaba](https://SanjayDaDhaba.github.io/index.html)
