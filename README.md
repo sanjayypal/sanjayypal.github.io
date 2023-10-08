@@ -1,1 +1,1 @@
-[sanjaydadhaba](https://sanjayypal.github.io/index.html)
+[sanjaydadhaba](https://sanjayypall.github.io/index.html)
